@@ -5,7 +5,7 @@ I’m currently learning C, and possibly lua in the future.
 
 ## How to reach me: 
 - chaossys1312@gmail.com
-- crumblingChaos#(Insert numbers here when I can access them.) on discord.
+- crumblingChaos#5972 on discord.
 - @ChaosSys1312 on twitter.
 
 ##
