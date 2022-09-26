@@ -9,10 +9,8 @@ I’m currently learning C, and possibly lua in the future.
 - @ChaosSys1312 on twitter.
 
 ##
-Proud Trans Lesbian.
+**Proud Trans Lesbian and anarchist.**
 
-Anarchist.
+**Arch User.**
 
-Arch User.
-
-### 1312
+**1312**
