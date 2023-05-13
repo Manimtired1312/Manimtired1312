@@ -1,15 +1,11 @@
 
-I'm Candie Bombac, a part of the chaos system, and the primary contributor of this account, I'm primarily interested in 40%-55% ortholinear keyboards, and anything Linux.
-
-I’m currently learning C, and possibly lua in the future.
+We're the Peridot System, a collective that works on various things, especially concept work for 40%-55% ortholinear keyboards, and anything Linux.
 
 ## How to reach me: 
-- chaossys1312@gmail.com
-- crumblingChaos#5972 on discord.
-- @ChaosSys1312 on twitter.
+- Perisys1312@proton.me
 
 ##
-**Proud Trans Lesbian and anarchist.**
+**Proud Non-Binary menace and anarchist.**
 
 **Arch User.**
 
